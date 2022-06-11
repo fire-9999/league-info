@@ -2,7 +2,8 @@
 
 
 
-### You can find the discord server [here](https://discord.gg/GVKG5jE2cJ)
+### 🔗 You can find the Discord server [here](https://discord.gg/GVKG5jE2cJ)
+### 🔗 You can find the Roblox group [here](https://www.roblox.com/groups/14981665/VAL-Vrticals-Arsenal-League#!/about)
 
 
 # Discord Rules
